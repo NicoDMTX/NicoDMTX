@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **nicolas.demontoux@hotmail.com**
 
-- 📄 Know about my experiences [1 year in alternated training](1 year in alternated training)
+- 📄 Know about my experiences [1 year in alternated training]
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
